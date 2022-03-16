@@ -1,6 +1,9 @@
 French boi w/ motivation issues
+
 Hopefully games here, othrewise scholl stuff
+
 Also UwU ain't cringe bruh
+
 
 🥖 Mon addresse mail 🥖 : chatloupidoux@gmx.fr
 
