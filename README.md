@@ -1,4 +1,4 @@
-French boi w/ motivation issues
+# French boi w/ motivation issues
 
 Hopefully games here, othrewise scholl stuff
 
